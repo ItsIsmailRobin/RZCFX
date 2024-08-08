@@ -1,5 +1,5 @@
-# 💫 REV CFX:
-⚡ CFX IP Finder By Revenger
+# 💫 REV C-F-X:
+⚡ C-F-X   I-P   F-i-n-d-e-r By Revenger
 
 
 ## 🌐 Socials:
